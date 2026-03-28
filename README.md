@@ -4,7 +4,7 @@
 
   ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#f1d5b1}{"𝚜𝔬}$ $\color{#f1d5b1}{𝔟𝔞bყ,}$ $\color{#f1d5b1}{𝔠𝔞𝔫}$ $\color{#f1d5b1}{yσ𝔲}$ $\color{#f1d5b1}{𝔠o𝔪𝔢}$ $\color{#f1d5b1}{𝔴i𝔱𝔥}$ $\color{#f1d5b1}{𝔪𝔢?}$  $\color{#af6664}{𝔦𝔩l}$ $\color{#af6664}{𝚜𝔥o𝔴}$ $\color{#af6664}{ყ𝔬𝔲}$ $\color{#af6664}{𝔞𝔩l}$ $\color{#af6664}{𝔱𝔥ҽ}$ $\color{#af6664}{ρ𝔯𝔢𝔱ƚ𝔶}$ $\color{#af6664}{𝔱𝔥𝔦ŋ𝔤𝔰."}$ /lyr
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/cf88ae7e91fd44789d76754e3333a6e0/eyJxIjoxMDAsIndlYnAiOjB9/1.gif?token-hash=spTJa7HrQYvwTJjnw4kk0IHewM219xFaZ-vaj0bv9hE%3D&token-time=1775952000)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/cf88ae7e91fd44789d76754e3333a6e0/eyJxIjoxMDAsIndlYnAiOjB9/1.gif?token-hash=spTJa7HrQYvwTJjnw4kk0IHewM219xFaZ-vaj0bv9hE%3D&token-time=1775952000)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤ[ata](https://yuriletsky.atabook.org) , [sp](https://chickenroulette.straw.page) , [doc](https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0)
   
