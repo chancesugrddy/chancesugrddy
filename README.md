@@ -1,6 +1,6 @@
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/03ae4c13b27941a9ab7af30f09f54547/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=EPHXGgLwtGlq82kdnMWeO6BdLI3xJAac_DouvWQJt7g%3D&token-time=1775952000)
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/fc799064365646ecbe39dc939fc27b0c/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=SVdxgOy5BV8jXDZ57re0vIVM1WDjGQrNfWkleseOzh4%3D&token-time=1775952000)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#e06f8b}{Shed}$<sub>​🇱​​🇪​​🇹​​🇸​​🇰​​🇾​</sub>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $$\color{#f3e2b4}{𝚜𝔥𝔢}$$ㅤ / ㅤ $$\color{#362931}{a𝔫𝓎}$$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=yuriletsky&color=24141e&label=deity)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#e06f8b}{Shed}$<sub>​🇱​​🇪​​🇹​​🇸​​🇰​​🇾​</sub>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $$\color{#f3e2b4}{𝚜𝔥𝔢}$$ㅤ / ㅤ $$\color{#362931}{a𝔫𝓎}$$ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=yuriletsky&color=24141e&label=deity)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
   ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ $\color{#f1d5b1}{"𝚜𝔬}$ $\color{#f1d5b1}{𝔟𝔞bყ,}$ $\color{#f1d5b1}{𝔠𝔞𝔫}$ $\color{#f1d5b1}{yσ𝔲}$ $\color{#f1d5b1}{𝔠o𝔪𝔢}$ $\color{#f1d5b1}{𝔴i𝔱𝔥}$ $\color{#f1d5b1}{𝔪𝔢?}$  $\color{#af6664}{𝔦𝔩l}$ $\color{#af6664}{𝚜𝔥o𝔴}$ $\color{#af6664}{ყ𝔬𝔲}$ $\color{#af6664}{𝔞𝔩l}$ $\color{#af6664}{𝔱𝔥ҽ}$ $\color{#af6664}{ρ𝔯𝔢𝔱ƚ𝔶}$ $\color{#af6664}{𝔱𝔥𝔦ŋ𝔤𝔰."}$ /lyr
 
