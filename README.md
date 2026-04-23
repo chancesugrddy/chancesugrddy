@@ -6,7 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/cf88ae7e91fd44789d76754e3333a6e0/eyJxIjoxMDAsIndlYnAiOjB9/1.gif?token-hash=n7RPKJkn4KoR8YxJgl2FVJdNx6sYSLA3zzX6l_5E7uQ%3D&token-time=1777766400)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata](https://chickenroulette.atabook.org) , [sp](https://chickenroulette.straw.page) , [doc](https://docs.google.com/document/d/1z4ul6yPd5LIOJ1_bN6ihUblsQf5wIt-z3MdDw-2Dx3Y/edit?tab=t.0)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ [ata](https://chickenroulette.atabook.org) , [sp](https://chickenroulette.straw.page) , [rentry](https://rentry.co/chickenrxulette)
   
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/f09372be36384a54aceae45511021309/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=RYCuTsJ976Vh87TOUje8xTwEaqzlk-XtLeJsHi6pKyY%3D&token-time=1777766400)ㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤㅤ ㅤㅤ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/13bce82e378546609c88b8117eeed829/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=kqTrBTsK0lrmrbwW5NU2KCw2hEIWUJkNOJ-H8YcmzuY%3D&token-time=1777766400)
 ![Image Alt](https://c10.patreonusercontent.com/4/patreon-media/p/post/154139728/793979e8e0b140dca274fac6cded7f89/eyJxIjoxMDAsIndlYnAiOjB9/1.webp?token-hash=-uPvVpMa6tQjLtX_8zXspWP8mv5iODc4PCepbtakn-s%3D&token-time=1777766400)
